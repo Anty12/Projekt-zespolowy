@@ -1,1 +1,1 @@
-# Projekt-zespo-owy
+# Projekt zespołowy
